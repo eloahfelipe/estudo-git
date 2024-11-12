@@ -1,4 +1,4 @@
-adicionado os codigos para
-o GitHub
-para acompanhamento
+A aula esta muito boa!!!
+
+diversos conteudos de aprendizados!
 
